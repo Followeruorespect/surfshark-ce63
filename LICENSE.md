@@ -1,4 +1,4 @@
-
+custom Surfshark Addon | kill-switch + cross-platform-support offers the most advanced Surfshark addon, with kill-switch and cross-platform-support. Ideal for users who value
 
 
 
